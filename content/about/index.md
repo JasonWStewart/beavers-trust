@@ -6,4 +6,4 @@ showDate: false
 showReadingTime: false
 ---
 
-The Beavers Trust is a charitable supporters' organization dedicated to aiding Hampton & Richmond Borough FC (HRBFC)
+The Beavers Trust is a charitable supporters' organization dedicated to aiding the supporters of Hampton & Richmond Borough FC.
