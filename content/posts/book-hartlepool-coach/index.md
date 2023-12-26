@@ -1,6 +1,6 @@
 ---
 title: "Book your Coach for Hartlepool"
-date: 2023-12-26T12:00:00Z
+date: 2023-12-26T11:00:00Z
 ---
 
 We are thrilled to share the details of the Beavers Trust supporters' coach for our upcoming FA Trophy journey to National League Hartlepool. This exclusive opportunity is available to both members and non-members of the trust, with special rates for our valued members. Not a member yet? [Sign up](https://hampton-richmond-borough-fc-supporters-society-limit.sumupstore.com/category/membership) for as little as £10 for adults and enjoy our members' rates!
