@@ -7,7 +7,7 @@ date: 2024-01-09T12:00:00Z
 
 The Beavers are currently enjoying a superb run with only 1 defeat in last 17 outings and holding second position in the Vanarama National League South and advancing to the Last 32 in this year’s Isuzu FA Trophy. To continue their journey towards Wembley, Hampton faces a tough challenge in the Fourth Round, away against National League Hartlepool United.
 
-This match marks the first encounter between Hampton & Richmond Borough and Hartlepool United. However, Hampton are no strangers to football in the North after facing a challenging visit to Gateshead in the FA Trophy (old 2nd round) back in 2011, resulting in a 6-0 defeat, a day the Beavers fans would not mind being lost in the history books. With reasonably successful visits to Southend and Yeovil this season the players will not hold too many nerves of running out at one of the bigger stadiums in the National League and will look forward to the boost and noise the Beavers fans can bring. 
+This match marks the first encounter between Hampton & Richmond Borough and Hartlepool United. However, Hampton are no strangers to football in the North after facing a challenging visit to Gateshead in the FA Trophy (old 2nd round) back in 2011, resulting in a 6-0 defeat, a day the Beavers fans would not mind being lost in the history books. With good performances on visits to Southend and Yeovil this season the players will not hold too many nerves of running out at one of the bigger stadiums in the National League and will look forward to the boost and noise the Beavers fans can bring. 
 
 ## Travel
 
