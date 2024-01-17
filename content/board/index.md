@@ -17,7 +17,7 @@ Get to know the dedicated individuals who make up our elected board, working tir
  - **David Rees** - Membership / Web Admin
  - **Stuart Moore** - Board Member
  - **Phil Weller** - Board Member
- - **Iain MacKinnon** - Trust Representative to the Club Board
+ - **Iain MacKinnon** - Board Member
  - **James Dean** - Board Member
 
 Our board members bring a diverse set of skills and experiences to The Beavers Trust, ensuring that we have a well-rounded team working on behalf of the supporters. We encourage open communication, and your [feedback is always welcomed](/contact). Together, we can continue to strengthen the bond between the club and its passionate fanbase.
