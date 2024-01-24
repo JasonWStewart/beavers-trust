@@ -32,7 +32,7 @@ Return time shortly after final whistle
 
 - Under 16 Non-Member - £22.50
 
-Under 16s must be travelling with a resonsible adult. 
+Under 16s must be travelling with a responsible adult. 
 
 Once we have a good idea of number we will let everyone know the final details and put the tickets up for sale on our online shop, those who sign up will be sent a link in advance of general sales to be able to secure their travel sooner.
 
