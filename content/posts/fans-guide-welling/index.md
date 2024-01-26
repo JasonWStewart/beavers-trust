@@ -17,13 +17,14 @@ Hampton re-connects with an old friend in the Vanarama National League South fix
 
 **Ground Address** - J Hearnden Skip Hire Community Stadium, Park View Road, Welling, Kent, [DA16 1SY](https://www.google.com/maps/place/Park+View+Rd,+Welling+DA16+1SY/@51.4594424,0.1141805,16.25z/data=!4m6!3m5!1s0x47d8aec28d93a89d:0x44152570d1794cc0!8m2!3d51.460439!4d0.116013!16s%2Fg%2F1tfjpzf8?entry=ttu)
 
-It takes around an hour and a half to get to Welling by **train** with several options, we suggest using Transport for London [travel planner](https://tfl.gov.uk/plan-a-journey).
-The nearest station is Welling. Off-peak trains leave half hourly from both London Victoria and London Charing Cross (also calling at Waterloo East and London Bridge).
+**Train Strike**
 
-From the station, go down the slope to the road at the bottom. Turn left and go to the end of the road. Turn left onto Bellegrove Road. This becomes Welling High Street and then Park View Road.
+On Tuesday 30th January the ASLEF union are taking [industrial action](https://www.nationalrail.co.uk/travel-information/industrial-action/), this will be impacting both South Western Railway and South Eastern services with very limited to no services operating. If there is service it will likely there will be no services at the end of the match.
+
+If you can get to the station, go down the slope to the road at the bottom. Turn left and go to the end of the road. Turn left onto Bellegrove Road. This becomes Welling High Street and then Park View Road.
 The ground is on the right just after the Guy, Earl of Warwick pub; it is approximately a 15-20 minute walk.
 
-If you wish to go by **bus**, numbers 89, 486 and B16 run past the ground. These buses can be caught from the train station to the stadium.
+If you wish to go by **bus**, numbers 89, 486 and B16 run past the ground. These buses can be caught from the train station to the stadium. Due to the train strike we suggest using Transport for London [travel planner](https://tfl.gov.uk/plan-a-journey) to plan your travel options.
 
 The ground is within the London contactless travel zones (Zone 6). 
 
