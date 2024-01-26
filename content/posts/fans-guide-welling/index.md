@@ -24,7 +24,7 @@ On Tuesday 30th January the ASLEF union are taking [industrial action](https://w
 If you can get to the station, go down the slope to the road at the bottom. Turn left and go to the end of the road. Turn left onto Bellegrove Road. This becomes Welling High Street and then Park View Road.
 The ground is on the right just after the Guy, Earl of Warwick pub; it is approximately a 15-20 minute walk.
 
-If you wish to go by **bus**, numbers 89, 486 and B16 run past the ground. These buses can be caught from the train station to the stadium. Due to the train strike we suggest using Transport for London [travel planner](https://tfl.gov.uk/plan-a-journey) to plan your travel options.
+If you wish to go by **bus**, numbers 89 (Lewisham to Slade Green), 486 (North Greenwich to Bexleyheath) and B16 (Kidbrooke to Bexleyheath) run past the ground. Due to the train strike we suggest using Transport for London [travel planner](https://tfl.gov.uk/plan-a-journey) to plan your travel options.
 
 The ground is within the London contactless travel zones (Zone 6). 
 
