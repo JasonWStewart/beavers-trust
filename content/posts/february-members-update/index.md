@@ -1,7 +1,6 @@
 ---
 title: "February Members Update"
 date: 2024-02-02T12:00:00Z
-featured_image: "img/sign.jpg"
 ---
 
 It's been an eventful month as the new Trust Board works to
