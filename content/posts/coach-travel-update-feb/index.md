@@ -10,9 +10,9 @@ We wanted to provide supporters with a quick update on our coach travel plans fo
 
 ![Weymouth FC club badge](weymouth.png)
 
-Sadly due to low numbers showing interest in this midweek journey it is not viable for us to run a coach on this occasion. We know this maybe disappointing for some fans however we do know several people are going to be driving down so please do ask around the Beveree.
+Sadly due to low numbers showing interest in this midweek journey it is not viable for us to run a coach on this occasion. We know this maybe disappointing for some fans however we do know several people are going to be driving down so please do ask around Beveree.
 
-We will provide some details on other transport options in our "fans guide to Weymouth" which we will public in the coming days. 
+We will provide some details on other transport options in our "fans guide to Weymouth" which we will published in the coming days. 
 
 ## **Saturday 23rd March - Torquay United**
 
