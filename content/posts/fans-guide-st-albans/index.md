@@ -32,6 +32,8 @@ From St Albans City rail station head up Station Way (turning left out of the st
 
 If you are **driving**, please be aware there is limited parking around the stadium. There are several car parks in town and at the rail station which maybe best and then take the short walk to the ground. 
 
+If you are parking at St Albans City train station please be aware that this station doesnt have machines for paying for your parking and it has to be done on the APOCA parking app or by scanning the QR code at the exits. You can find out more about this car park [here](https://www.apcoa.co.uk/parking-in/st-albans-1/st-albans-station-way/). 
+
 # **Admission and Stadium Information**
 
 Admission prices purchased online
