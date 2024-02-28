@@ -22,6 +22,8 @@ There are several **train** options from Central London to St Albans City (yes, 
 
 To plan your journey we suggest you use the [national rail journey planner](https://www.nationalrail.co.uk/journey-planner/).
 
+There are a few supporters who will be making their way on the train together, meeting at Richmond Station around 10.30am. If you want to travel with fellow fans just turn up and you will be more than welcome! 
+
 **There are planned engineering works which will close the lines through Wimbledon all weekend.** This means there are significant changes to the timetable and some trains are not running or are replaced by buses. The Shepperton line, which serves Hampton will be diverted via the Richmond branch so will have a longer journey time and will depart at different times to normal. 
 
 You can check which lines are impacted on South Western Railway [website](https://www.southwesternrailway.com/plan-my-journey/planned-improvements/march-2024-works)
