@@ -34,7 +34,6 @@ Concessionary price is available for over 65s, students in full-time education, 
 
 {{<button href="https://www.hemelfc.com/event-details/hhtfc-v-hampton-richmond-borough-1" target="_self">}} Buy tickets Hemel Hempstead {{</button>}}
 
-https://www.hemelfc.com/event-details/hhtfc-v-hampton-richmond-borough-1
 
 # **Where’s the local?**
 
