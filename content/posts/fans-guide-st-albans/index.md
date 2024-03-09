@@ -1,6 +1,6 @@
 ---
 title: "Fans guide to St Albans City"
-date: 2024-02-27T00:00:00Z
+date: 2024-02-06T00:00:00Z
 ---
 
 **Saturday 2nd March 2024 - 3pm** <br>
