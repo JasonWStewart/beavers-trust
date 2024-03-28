@@ -8,6 +8,8 @@ showPagination: false
 ---
 Welcome to the Beavers Trust, the heartbeat of Hampton & Richmond FC supporters. As the official supporters’ society we bring together fans, both seasoned and new, in a shared desire to contribute to the success of our club.
 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/wyV1FOSIay8?si=Xpty8m7OsL-n_0-x" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
+
 **Our Mission:** The Beavers Trust is an independent, democratic, not for profit organisation; giving voice to supporters, working with the Club to build a successful future, and supporting community and charity initiatives.
 
 **Unity in Community:** More than just a society, we are a community of dedicated fans committed to fostering unity among supporters. Whether you’re cheering from the stands or following the action online, the Beavers Trust is your connection to the heart of the club.
