@@ -23,12 +23,6 @@ There are several **train** options from Central London to St Albans City (yes, 
 
 To plan your journey we suggest you use the [national rail journey planner](https://www.nationalrail.co.uk/journey-planner/).
 
-There are a few supporters who will be making their way on the train together, meeting at Richmond Station around 10.30am. If you want to travel with fellow fans just turn up and you will be more than welcome! 
-
-**There are planned engineering works which will close the lines through Wimbledon all weekend.** This means there are significant changes to the timetable and some trains are not running or are replaced by buses. The Shepperton line, which serves Hampton will be diverted via the Richmond branch so will have a longer journey time and will depart at different times to normal. 
-
-You can check which lines are impacted on South Western Railway [website](https://www.southwesternrailway.com/plan-my-journey/planned-improvements/march-2024-works)
-
 The station is a short walk to the stadium which includes a walk-through Clarence Park, you can see a map below.
 
 From St Albans City rail station head up Station Way (turning left out of the station) at the top of the road turn left on Hatfield Road, crossing over the road and then into Clarence Park through the Hatfield Road Bridge Entrance, it should then be apparent where the ground is, but if you are not sure keep the railway on your left and you will eventually get to the ground. 
