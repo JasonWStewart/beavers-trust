@@ -1,9 +1,10 @@
 ---
 title: "Fans guide to St Albans City"
-date: 2024-02-06T00:00:00Z
+date: 2024-04-15T00:00:00Z
 ---
+# Re-arranged game!
 
-**Saturday 2nd March 2024 - 3pm** <br>
+**Tuesday 16th April 2024 - 7.45pm** <br>
 **Vanarama National League South**
 
 

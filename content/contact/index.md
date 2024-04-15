@@ -9,7 +9,12 @@ showPagination: false
 
 Feel free to reach out to us with any inquiries or concerns. We value your feedback and we are here to represent the views of supporters and our members.
 
-Email: beaverstrust@gmail.com
+General Email: info@thebeaverstrust.com
+
+Membership: membership@thebeaverstrust.com
+
+Treasurer: treasurer@thebeaverstrust.com
+
 
 Registered Under: Industrial and Provident Societies Act 1965
 
