@@ -10,7 +10,7 @@ date: 2024-04-15T00:00:00Z
 
 # **The Background**
 
-Hampton are on the road to Hertfordshire to pay a visit to fellow play off hopefuls St Albans City in the Vanarama National League South kicking off at 3pm. The Beavers and The Saints have had similar fortunes this season both sitting at the foot of the play off places so everything is set for this to be a great afternoon of football. The reverse of this fixture took place only a few weeks ago and ran out a 0-0 draw at Beveree. The teams have met many times in recent years, 15 times in fact, with honours even. St Albans and Hampton both having 6 wins each and 3 draws between the two sides. 
+Hampton are on the road to Hertfordshire to pay a re-arranged visit to Clarence Park to face St Albans City. The Beavers and The Saints have had similar fortunes this season however in recent weeks City have slipped slightly down the table and the playoffs now out of reach. The reverse of this fixture took place back in Febuary and ran out a 0-0 draw at Beveree. The teams have met many times in recent years, 15 times in fact, with honours even. St Albans and Hampton both having 6 wins each and 3 draws between the two sides. 
 
 # **Travel**
 
