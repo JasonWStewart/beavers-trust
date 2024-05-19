@@ -4,7 +4,7 @@ languageDirection = "ltr"
 weight = 1
 
 title = "The Beavers Trust"
-copyright = "© 2023 Hampton and Richmond Borough Football Club Supporters' Society Limited (IP030469)"
+copyright = "© 2024 Hampton and Richmond Borough Football Club Supporters' Society Limited (IP030469)"
 
 [params]
 dateFormat = "2 January 2006"
@@ -18,7 +18,7 @@ image = "img/logo.png"
 headline = "The Supporters' Trust for Hampton & Richmond Borough FC"
 bio = "The Beavers Trust is a non-profit Supporters' Trust, open to all fans of Hampton & Richmond Borough FC."
 links = [
-  { email = "mailto:beaverstrust@gmail.com" },
+  { email = "mailto:info@thebeaverstrust.com" },
   #   { link = "https://link-to-some-website.com/" },
   #   { amazon = "https://www.amazon.com/hz/wishlist/ls/wishlist-id" },
   #   { apple = "https://www.apple.com" },
