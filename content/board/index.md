@@ -15,7 +15,6 @@ Get to know the dedicated individuals who make up our elected board, working tir
  - **Curt Higgins** - Treasurer
  - **Ben Harrison-Hyde** - Media and Communications
  - **David Rees** - Membership / Web Admin
- - **Stuart Moore** - Board Member
  - **Phil Weller** - Board Member
  - **Iain MacKinnon** - Board Member
  - **James Dean** - Board Member
