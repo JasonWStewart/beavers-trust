@@ -18,7 +18,7 @@ These times and distances are approximate!
 
 **The Background**
 
-Hampton make the journey to Dorset midweek to face Weymouth in the Vanarama National League South. The Terras have had mixed fortunes this campaign and currently sit fairly comfortably in mid-table. Since 2019 the Beavers have met Weymouth on 5 occasions Weymouth winning 3, Hampton 2 and no draws between the sides. Earlier this season, back in September Hampton ran out 1-0 winners at Beveree.
+Hampton make the journey to Dorset midweek to face Weymouth in the Vanarama National League South. Since 2019 the Beavers have met Weymouth on 7 occasions Weymouth winning 4, Hampton 3 and no draws between the sides. Last season Hampton came out 1-0 winners at Beveree with an 89th min winner from Ben Seymour.
 
 
 **Travel**
