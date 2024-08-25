@@ -1,12 +1,12 @@
 ---
 title: "Fans guide to Weymouth"
-date: 2024-02-12T12:00:00Z
+date: 2024-08-28T12:00:00Z
 ---
 
 ## Weymouth v Hampton & Richmond Borough
 Vanarama National League South
 
-**Tuesday 20th February 2024 – Kick off 7.45pm**
+**Tuesday 3rd September 2024 – Kick off 7.45pm**
 
 Details travelling from Hampton
 
