@@ -42,7 +42,7 @@ treasurer@thebeaverstrust.com
 
  admin@thebeaverstrust.com
 ![Dave Rees](Dave.png)
-Dave has been invovled in Hampton since 1995, starting as a helper at Saturday morning mini-soccer moving into helping the main club on match-days eventually taking over as Safety Officer and Operations manager in 2000. Dave left the club as a volunteer in 2022 but continues to support the Beavers Trust, he also continues to support numerous clubs around the area with their development of operations and stadium safety. 
+Dave has been involved in Hampton since 1995, starting as a helper at Saturday morning mini-soccer moving into helping the main club on match-days eventually taking over as Safety Officer and Operations manager in 2000. Dave left the club as a volunteer in 2022 but continues to support the Beavers Trust, he also continues to support numerous clubs around the area with their development of operations and stadium safety. 
 
 --------------
 
