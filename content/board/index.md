@@ -9,9 +9,16 @@ showPagination: false
 
 Get to know the dedicated individuals who make up our elected board, working tirelessly to represent the interests of all supporters and contribute to the success of The Beavers Trust. Feel free to approach any of them on matchdays or [contact the Trust](/contact) if you have matters you'd like us to address.
 
+_________________________________
+
  **Stefan Rance** - Chair
 
 chairman@thebeaverstrust.com
+![Stefan Rance](Stef.png)
+
+I've been coming to the home of football since 1989 and been a regular ever since. Over this period I've done, pretty, much all roles that were available from running the bar, producing the programme, being on the committee and board, occasional groundsman and really bad tannoy announcer (seriously check out the worst bits on Andy Eggletons You Tube channel!)
+
+I'm now Secretary of the Youth section and my eldest is currently in the academy. I want the Trust to be representative of the entire supporter base, ensure that our supporters are being given the best Hampton experience there is and work within the community to promote the club and provide help and support where we can to Hampton fans and the much wider community.
 
 --------------
 
