@@ -1,14 +1,11 @@
 ---
 title: "Fans guide to Hemel Hempstead Town"
-date: 2024-03-07T00:00:00Z
+date: 2024-11-08T00:00:00Z
 ---
 
-**Saturday 16th March 2024 - 3pm** <br>
+**Saturday 9th March 2024 - 3pm** <br>
 **Vanarama National League South**
 
-
-# **The Background**
-Hemel Hempstead will welcome the Beavers on the back of a change in management. The new manager maybe familiar to you, as ex Beaver boss Alan Dowson now holds the lead role at the Focus Community Arena after departing Dartford earlier in the season. 
 
 # **Travel**
 Ground Address – <br>
