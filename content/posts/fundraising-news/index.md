@@ -12,7 +12,7 @@ There are many ways you can support the Trust in fundraising. We raise funds to 
 
 Help us raise money with [easyfundraising.](easyfundraising.org.uk)
 
-When you next go online shopping, open [easyfundraising.org.uk](https://www.easyfundraising.org.uk/causes/hrbfc/) and make sure you are registered to our ’cause’ – [easyfundraising.org.uk/hrbfc](https://www.easyfundraising.org.uk/causes/hrbfc/)
+When you next go online shopping, goto [easyfundraising](https://www.easyfundraising.org.uk/causes/hrbfc/) and make sure you are registered to our [’cause’](https://www.easyfundraising.org.uk/causes/hrbfc/)
 
 So far this has raised £3,305.42
 
