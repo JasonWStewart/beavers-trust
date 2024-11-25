@@ -1,6 +1,6 @@
 ---
 title: "Fans guide to Yate Town"
-date: 2024-11-14T12:00:00Z
+date: 2024-11-10T12:00:00Z
 ---
 
 
