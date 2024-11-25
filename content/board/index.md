@@ -9,6 +9,7 @@ showPagination: false
 
 Get to know the dedicated individuals who make up our elected board, working tirelessly to represent the interests of all supporters and contribute to the success of The Beavers Trust. Feel free to approach any of them on matchdays or [contact the Trust](/contact) if you have matters you'd like us to address.
 
+# Our Board
 _________________________________
 
  **Stefan Rance** - Chair
@@ -45,16 +46,6 @@ treasurer@thebeaverstrust.com
 
 --------------
 
- **David Rees** - Membership / Web Admin
-
- admin@thebeaverstrust.com
-![Dave Rees](Dave.png)
-Dave has been involved in Hampton since 1995, starting as a helper at Saturday morning mini-soccer moving into helping the main club on match-days eventually taking over as Safety Officer and Operations manager in 2000. 
-
-Dave left the club as a volunteer in 2022 but continues to support the Beavers Trust, he also continues to support numerous clubs around the area with their development of operations and stadium safety. 
-
---------------
-
  **Phil Weller** - Board Member
 ![Phil Weller](Phil.png)
 Season ticket holder since 2007 and a founder member of the Beavers Trust. Took a lead role in the six figure refurbishment of the main terrace and seating stand.
@@ -84,4 +75,17 @@ I’ve lived in Twickenham for over 20 years, and I work in a regional leadershi
 I am married with two children and divide my footballing allegiance between The Beavers and Manchester United.
 
 --------------
+
+# Other member roles & support
+
+ **David Rees** - Web Admin
+
+ admin@thebeaverstrust.com
+![Dave Rees](Dave.png)
+Dave has been involved in Hampton since 1995, starting as a helper at Saturday morning mini-soccer moving into helping the main club on match-days eventually taking over as Safety Officer and Operations manager in 2000. 
+
+Dave left the club as a volunteer in 2022 but continues to support the Beavers Trust, he also continues to support numerous clubs around the area with their development of operations and stadium safety. Dave currently supports the trust with its online tools. 
+
+___________________
+
 Our board members bring a diverse set of skills and experiences to The Beavers Trust, ensuring that we have a well-rounded team working on behalf of the supporters. We encourage open communication, and your [feedback is always welcomed](/contact). Together, we can continue to strengthen the bond between the club and its passionate fanbase.
