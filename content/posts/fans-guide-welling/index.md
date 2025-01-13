@@ -1,70 +1,71 @@
 ---
 title: "Fans guide to Welling"
-date: 2024-01-26T12:00:00Z
+date: 2025-01-13T12:00:00Z
 ---
+## Welling United v Hampton & Richmond Borough
 
-**Welling United v Hampton & Richmond Borough**
+Venue : Park View Road, Welling, Kent, DA16 1SY
 
-Vanarama National League South 
+Vanarama National League South
 
-**Tuesday 30th January 2024 - Kick off 7.45pm**
+Tuesday 13th January 2025 - Kick off 7.45pm
 
-**The Background**
+After suffering a white out on Saturday with the trip to Boreham Wood postponed, along with 95% of all non 3G game sin London Alan Juliens Beavers side make the short trip across London to take on Rod Stringer and his Wings of Welling. The last time the 2 sides met at Park View Road the hosts came from one down to win 2-1 in Stringer’s first game in charge. This was despite being down to 10 men. It kick started the Beaver’s end of season struggles which saw an eventual 9th place finish.
 
-Hampton re-connects with an old friend in the Vanarama National League South fixture. Hampton have regularly played the South-East London over the years with 12 meetings since 2016. Hampton currently has the best record winning 7 of those encounters, Welling getting victory in 2 and 3 resulting in draws. Welling is a reasonably simple journey by public transport and there are plenty of places to visit on the way to the ground.
+Welling currently sit in 19th place but are only 5 points behind Hampton with a 9 point game to St Albans who occupy the last relegation spot. On Saturday they made the long trip to Devon to take on league leaders Torquay but returned with no points following a 3-1 defeat.
 
-**Travel**
+# Travel
 
-**Ground Address** - J Hearnden Skip Hire Community Stadium, Park View Road, Welling, Kent, [DA16 1SY](https://www.google.com/maps/place/Park+View+Rd,+Welling+DA16+1SY/@51.4594424,0.1141805,16.25z/data=!4m6!3m5!1s0x47d8aec28d93a89d:0x44152570d1794cc0!8m2!3d51.460439!4d0.116013!16s%2Fg%2F1tfjpzf8?entry=ttu)
+## Car
 
-**Train Strike**
+If you are travelling from anywhere other than Kent, take the M25 to Junction 2. At the roundabout, take the A2 towards Central London. Leave the A2 at the third exit (Danson Interchange, signposted A221 to Bexleyheath and Sidcup).
 
-On Tuesday 30th January the ASLEF union are taking [industrial action](https://www.nationalrail.co.uk/travel-information/industrial-action/), this will be impacting both South Western Railway and South Eastern services with very limited to no services operating. If there is service it will likely there will be no services at the end of the match.
+Turn right (second exit) at the roundabout at the end of the slip road, and then turn right (third exit) at the next roundabout. Go under the A2 bridge and up the slope to another roundabout.
 
-If you can get to the station, go down the slope to the road at the bottom. Turn left and go to the end of the road. Turn left onto Bellegrove Road. This becomes Welling High Street and then Park View Road.
-The ground is on the right just after the Guy, Earl of Warwick pub; it is approximately a 15-20 minute walk.
+Take the second exit and follow the road (Danson Road) to the traffic lights at the end. Turn left at the lights onto Park View Road. The ground is on the left. There is no car park, but plenty of street parking is available. 
 
-If you wish to go by **bus**, numbers 89 (Lewisham to Slade Green), 486 (North Greenwich to Bexleyheath) and B16 (Kidbrooke to Bexleyheath) run past the ground. Due to the train strike we suggest using Transport for London [travel planner](https://tfl.gov.uk/plan-a-journey) to plan your travel options.
+## Public Transport
 
-The ground is within the London contactless travel zones (Zone 6). 
+The nearest station is Welling which is on the line to Dartford from both London Victoria and London Charing Cross. For travelling Bevers the easiest route is to catch the train to Waterloo then hop over to Waterloo East where there is a half hourly service. There is also the option to take the underground to North Greenwich and catch the 486 bus.
 
-If you are **driving**, please be aware there is no parking at Wellings ground and there is limited parking in roads around the ground, please check for parking restrictions. Park View Road is within the [Ultra Low Emmision zone](https://tfl.gov.uk/modes/driving/low-emission-zone/about-the-lez#on-this-page-1)
+If you wish to go by bus, numbers 89 (Lewisham to Slade Green), 486 (North Greenwich to Bexleyheath) and B16 (Kidbrooke to Bexleyheath) run past the ground. 
 
+The ground is within the London contactless travel zones (Zone 6).
 
-**Admission Information**
+The ground is around a 25 minute walk from Welling Station.
 
-- Adults : £15
-- Concession : £10
-- Student : £10
-- Under 16 : £7
-- Under 11 : Free
+## Admission Information (Tickets are cheaper when bought online HERE)
+
+Adults : £16
+
+Concession : £11
+
+Student : £11
+
+Under 18 : £8
+
+Under 16 : Free
 
 Welling ticketing platform does offer concession admission for blue/Armed forces staff
 
- {{<button href="https://ticketpass.org/event/EQUDPI/welling-united-vs-hampton-richmond-borough-3" target="_self">}} Buy tickets from Welling {{</button>}}
+## Other Information
 
-This information is from Welling United FC
+Gates open at 6pm. The new-look Fans Zone marquee will be open for all supporters ahead of kick-off with a variety of alcoholic drinks on offer, including real ale, cider and beer, while the Urban Street Food food truck will be offering a whole host of tasty food options throughout the evening, from burgers and hot dogs, to jerk chicken and chicken chow mein and everything in between.
 
+Meanwhile, two darts boards are available for fans to go head-to-head with their friends.
 
-**Where’s the local?**
+The club’s official matchday programme, ‘The Wings’, will be available to purchase at the turnstiles for £3.
 
-Welling has an abundance of pubs and places to eat which you can check out before the game; below are some locations we have found (this is not a recommendation list):
+## Food & Drinks
 
-[The New Cross Turnpike (Weatherspoon)](https://www.jdwetherspoon.com/pubs/all-pubs/england/london/the-new-cross-turnpike-welling)
+As usual the ground has a good selection of food and drink, for those looking to sample some local wares Chris Hurst has provided a, fairly comprehensive, review of your options! With many supporters likely to travel straight from work there is no Trust Travel Together location but keep an eye on our socials for updates in the run up to the game! See you there.
 
-[McDonalds Welling](https://www.mcdonalds.com/)
+From the station make your way along Central Avenue towards Bellegrove Road which becomes Welling High St and leads you to the ground. Along this road there are plenty of pub options. The Plough & Harrow (DA16 3QS) is the first you'll come across. Historically it was a sports bar type pub but its website suggests it's now under new management and states it doesn't want "riff raff" in!
 
-Elite Fish Bar - 87 Welling High St, Welling DA16 1TY
+Moving along Bellegrove Road you'll next come to the New Cross Turnpike (DA16 3PB) which is the Wetherspoon pub. Next up, a short walk along the road is the Hangar (DA16 3PB) which is an independent micro-pub serving craft beers. Then there's the Rose & Crown (DA16 1TR) which is another five minute along the road and to your left, this one shows sports on tv.
 
-[Naggs Head](https://www.greeneking.co.uk/pubs/kent/nags-head?utm_source=g_places&utm_medium=locations&utm_campaign=PS_pubpage)
+In recent seasons a popular pre-match 'haunt' has been the Door Hinge, another micro-pub (DA16 1TR) which is probably the best of the lot and is next along the road. It closes at 9pm so will only be available before the match. Claiming to be Greater London's first micro-pub, it serves a wide range of ales and ciders (including takeaway options!) and has an interesting selection of pub games and books. It's traditional pub rules though: no mobile phones!
 
-[Guy Earl of Warwick](https://www.guyearlofwarwick.co.uk/)
-
-You will also find several shops, supermarkets (Tesco) and other places for food along the high street. 
-
-Of course, you can also get a drink in the Wings bar and food in the ground and we encourage our supporters to support other clubs by enjoying a drink in the hosts facilities. 
-
-
-We've worked hard to make sure the info in this article are correct. Please double-check important details for yourself, as we can't be responsible for any errors or issues that may come up from using this information.
+Finally, the nearest pub to the ground is the Guy Earl of Warwick (DA16 1TB), just outside the stadium entrance, this one is a Greene King pub which serves food and is the place you're most likely to meet home fans. Be aware the walk from station to ground is about a mile so will take a good 25 minutes without the pub stops factored in!
 
 <iframe src="https://www.google.com/maps/embed?pb=!1m14!1m8!1m3!1d4971.805689950421!2d0.1131385!3d51.4599402!3m2!1i1024!2i768!4f13.1!3m3!1m2!1s0x47d8aec298377d75%3A0xb8907ec29155b8e8!2sWelling%20United%20Football%20Club!5e0!3m2!1sen!2suk!4v1707776573499!5m2!1sen!2suk" width="600" height="450" style="border:0;" allowfullscreen="" loading="lazy" referrerpolicy="no-referrer-when-downgrade"></iframe>
