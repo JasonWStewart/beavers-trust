@@ -3,7 +3,7 @@ title: "Fans guide to Boreham Wood FC"
 date: 2025-01-06T12:00:00Z
 ---
 
-Saturday 11th January, Kick Off 3pm
+Tuesday 21st January, Kick Off 7.45pm (Re-arranged Match!)
 
 Mangata Pay UK Stadium, Meadow Park, Broughinge Road, Borehamwood, Herts, WD6 5AL
 
