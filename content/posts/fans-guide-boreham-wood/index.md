@@ -1,6 +1,6 @@
 ---
 title: "Fans guide to Boreham Wood FC"
-date: 2025-01-06T12:00:00Z
+date: 2025-01-18T12:00:00Z
 ---
 
 Tuesday 21st January, Kick Off 7.45pm (Re-arranged Match!)
