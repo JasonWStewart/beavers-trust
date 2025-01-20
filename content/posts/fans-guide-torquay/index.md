@@ -9,7 +9,7 @@ date: 2025-01-19T12:00:00Z
 
 **Where**: Plainmoor, Torquay United FC, Warbro Road, TQ1 3PS
 
-**Fan Meet**: 09:03 train from London Paddington
+**Fan Meet**: 08:03 and 09:03 train from London Paddington
 
 **Supporter’s Coach**: No
 
