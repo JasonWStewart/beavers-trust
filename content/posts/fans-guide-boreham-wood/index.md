@@ -17,7 +17,7 @@ For your travelling Beaver hoard Boreham Wood is one of the easier games to get 
 
 Again, train transport gives you plenty of options, Boreham Wood is served on the same line as St Albans so you can catch trains from Kings Cross / St Pancreas, or go via the Overground line from Richmond to West Hampstead and pick up a train there. The ground is approximately a 20 minute walk from the train station.
 
-# Food & Drink
+## Food & Drink
 The ground has catering facilities in the away area but there is no access to the club house for away fans and Boreham Wood recommend using local pubs and restaurants in the local area.
 
 On route from the train station to the ground you do have a selection of pubs, restaurants and fast food options available. As well as big chains such as Nando’s and McDonalds you can wet your whistle at this selection of pubs.
@@ -30,10 +30,8 @@ On route from the train station to the ground you do have a selection of pubs, r
 
 There are also plenty of drinking options in West Hampstead and St Pancreas as well.
 
-# Beavers Trust Travel Together 
-At most away trips the Trust will look to offer supporters the chance to travel together to help introduce new fans to each other and to build support for these games. For this Saturday the meeting point is The Barrel Vault in St Pancreas Station with an 11am meet. All are welcome, young or old, new or longstanding, Trust Member or not, to join with us as we head up the line in search of another 3 points for Jule’s boys.
-If you want to join us during the day at another point then just get in contact via any of our socials and one of the board will let you know where you can find us.
-Ticket Information.
+
+## Ticket Information.
 Tickets can be purchased online : Buy Away Tickets - Boreham Wood Football Club Official Website
 
 Prices
