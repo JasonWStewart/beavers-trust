@@ -46,14 +46,6 @@ treasurer@thebeaverstrust.com
 
 --------------
 
- **Phil Weller** - Board Member
-![Phil Weller](Phil.png)
-Season ticket holder since 2007 and a founder member of the Beavers Trust. Took a lead role in the six figure refurbishment of the main terrace and seating stand.
-
-Served as Trust Chairman for several years and represented the Trust on the main club board in its role as a Corporate Director, and more recently as a personal director. Resigned from that role earlier this year. Previously spent 2 years as Club Covid Officer. Can normally be found helping with matchday parking pre game and with stewarding soon after.
-
---------------
-
  **Iain MacKinnon** - Board Member
  
  trust.news@thebeaverstrust.com
@@ -87,5 +79,16 @@ Dave has been involved in Hampton since 1995, starting as a helper at Saturday m
 Dave left the club as a volunteer in 2022 but continues to support the Beavers Trust, he also continues to support numerous clubs around the area with their development of operations and stadium safety. Dave currently supports the trust with its online tools. 
 
 ___________________
+
+# Role of honour - previous board memebers
+
+ **Phil Weller** - Board Member
+![Phil Weller](Phil.png)
+Season ticket holder since 2007 and a founder member of the Beavers Trust. Took a lead role in the six figure refurbishment of the main terrace and seating stand.
+
+Served as Trust Chairman for several years and represented the Trust on the main club board in its role as a Corporate Director, and more recently as a personal director. Resigned from that role earlier this year. Previously spent 2 years as Club Covid Officer. Can normally be found helping with matchday parking pre game and with stewarding soon after.
+Phil stood down as memeber of the board at the end of 2024 but remains a key supporter of the trust and the club. 
+
+--------------
 
 Our board members bring a diverse set of skills and experiences to The Beavers Trust, ensuring that we have a well-rounded team working on behalf of the supporters. We encourage open communication, and your [feedback is always welcomed](/contact). Together, we can continue to strengthen the bond between the club and its passionate fanbase.
