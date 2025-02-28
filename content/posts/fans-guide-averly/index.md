@@ -1,5 +1,5 @@
 ---
-title: "Fans guide to Averly"
+title: "Fans guide to Aveley"
 date: 2025-02-27T12:00:00Z
 ---
 
