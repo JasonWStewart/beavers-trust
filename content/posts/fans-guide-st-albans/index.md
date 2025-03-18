@@ -1,16 +1,12 @@
 ---
 title: "Fans guide to St Albans City"
-date: 2024-04-15T00:00:00Z
+date: 2025-03-18T00:00:00Z
 ---
 # Re-arranged game!
 
-**Tuesday 16th April 2024 - 7.45pm** <br>
+**Tuesday 18th March - 7.45pm** <br>
 **Vanarama National League South**
 
-
-# **The Background**
-
-Hampton are on the road to Hertfordshire to pay a re-arranged visit to Clarence Park to face St Albans City. The Beavers and The Saints have had similar fortunes this season however in recent weeks City have slipped slightly down the table and the playoffs now out of reach. The reverse of this fixture took place back in Febuary and ran out a 0-0 draw at Beveree. The teams have met many times in recent years, 15 times in fact, with honours even. St Albans and Hampton both having 6 wins each and 3 draws between the two sides. 
 
 # **Travel**
 
@@ -34,16 +30,18 @@ If you are parking at St Albans City train station please be aware that this sta
 # **Admission and Stadium Information**
 
 Admission prices purchased online
-- Adults : £16.50
-- Concession : £11
-- 18-23 years : £8
-- Youth 12-17 : £6
-- Under 12 : Free
+- Adults : £18.00
+- Concession : £12.50
+- 18-23 years : £9
+- Youth 12-17 : £7
+- Junior 5-11 : £1
+- Infant 0-4 : Free
 
 You can purchase your tickets from St Albans City website, click the button below.
 
-{{<button href="https://fanzone.stalbanscityfc.com/product/st-albans-city-v-hampton-richmond-borough-020324/" target="_self">}} Buy match tickets {{</button>}}
+{{<button href="https://fanzone.stalbanscityfc.com/product/nls-24-25-st-albans-city-men-v-hampton-and-richmond-180325/" target="_self">}} Buy match tickets {{</button>}}
 
+The York Road turnstiles will be open from 6.30 pm. The Clarence Park and Hatfield Road turnstiles will be open from 6.45 pm to 8.00 pm. Card payments only are accepted at the turnstiles.
 <br>
 <br>
 
