@@ -1,65 +1,59 @@
 ---
 title: "Fans guide to Worthing"
-date: 2024-03-28T12:00:00Z
+date: 2025-03-27T12:00:00Z
 ---
 
-## Worthing v Hampton & Richmond Borough
-Vanarama National League South
+- What? Worthing vs Hampton & Richmond Borough
+- When? Saturday, 29th March 2025, 3pm Kick-off
+- Where? Woodside Road, Worthing FC, BN14 7HQ
+- Train? 11:06 from Clapham Junction
+- Coach? No
 
-**Monday 1st April 2024 – Kick off 3pm**
-
-## The Background
-The Beavers will be completing the Easter fixtures with a trip to the south coast to face fellow playoff hopefully Worthing. 
+## Overview
+Hampton are firmly rooted to the bottom of the form table with ten defeats in the last eleven outings.  Being almost certainly safe from relegation though, the season has fizzled out… but what better way to take your mind off those spring blues than with a trip to the seaside on what should, according to BBC Weather, be a mostly sunny day with a light breeze?  It’s a 3pm kick-off at Worthing’s Woodside Road ground, Hampton will look forward to welcoming Max Merrick and Mauro Vilhete back into the squad, both players return from international duty with England Under 20s and São Tomé and Príncipe respectively.  Worthing have had a wobble in form of their own this week – they surprisingly lost to relegation-threatened Welling United last weekend and compounded their misery with a defeat at home to Hornchurch on Tuesday night.  They’re still top of the league going into Saturday’s contest, but Truro, Eastbourne, and the rest of the chasing pack are breathing down their neck – it’s a crucial game for them.
 
 ## Travel
-**Ground Address – The Sussex Transport Community Stadium, Woodside Road, Worthing, West Sussex, BN14 7HQ**
+If you are driving to Worthing, please be aware there is no parking for supporters at the stadium.  There are some options nearby, spaces are available at the public car park situated behind the Church in Queen Street. The post code for the Church is BN14 7BJ and the entrance to the car park is on the left-hand side of the church.  Walking from Queen Street Car Park to the ground: Turn right out of the car park into Queen Street and walk to the junction at the end.  From the junction, turn left into South Farm Road. Go straight over the mini roundabout by Worthing High School and after around 200 yards take the second turning on the right, Bulkington Avenue. The second turning on the left down this road is Woodside Road and the stadium is 75 yards down the road on the right.
 
-The Beavers Trust are running a **coach**, which is the most efficient and cheapest way to travel to this fixture. Remember trust members get a discounted price! The coach will be arriving in plenty of time for you to walk into town before the game.
+If you’re taking the train, both Worthing and West Worthing Stations are a 10-minute walk from Woodside Road.  The stations are served by Southern with direct trains available from London Victoria, Clapham Junction and East Croydon.  The trains depart Clapham Junction at 06 and 36 minutes past the hour, with the latest you could depart from Clapham to make kick-off being 13:06 (arriving at 14:40).  Some of our members are planning on taking the 11:06 (arriving into Worthing at 12:40).  From Worthing Station turn right out of the station and walk adjacent to the train line along Cross Street to until you reach the crossing. Cross over the train line onto South Farm Road. Take the first left onto Pavilion Road, after around 300 metres Woodside Road is on your right.
 
-{{<button href="https://hampton-richmond-borough-fc-supporters-society-limit.sumupstore.com/category/away-travel" target="_self">}} Buy Coach Travel {{</button>}}
+## Tickets
+Worthing do not usually segregate their fixtures and we do not anticipate segregation being introduced for this fixture, so it’s behind the goal we’re shooting towards, as is customary!  
+Worthing’s admission prices are;
+- £17 for adults, £13 for concessions, 
+- £7 for Under 16s, 
+- £4 for Under 12s, 
+- free for Under 6s.  
 
+Worthing’s website clarifies that concessions applies to over 65, students (with valid photo card ID) and people with a disability.  You can advance purchase your tickets at the link below, but equally you can buy at the turnstile, if you prefer, there is no difference in price.
 
-If you are **driving** to Worthing, please be aware there is no parking at the Stadium for supporters, there are a few parking options near by, if you choose to use road parking please be considerate of Worthing’s neighbours. 
+## Pubs
+Woodside Road is located in a residential area, however, the main town and seafront is a short walk away.  Heading out of Worthing Station and along Teville Road then south along North Street, you’ll find the New Amsterdam tucked away on High St.  This place is a modern studenty/trendy bar that opens at midday, it boasts two food pop-ups: a dough-pizza place and a smoke house. Just across from the New Amsterdam is The Corner House, a free house a superbly kept garden with heated booths & multiple seating areas which tries to only serve local Sussex drinks.  Continuing southwards towards the seafront, The Cow & Oak on Brighton Road opened its doors in 2018 and is another of Worthing’s many independent pubs, it mixes traditional Sunday roasts and real ale with a contemporary feel.  Heading in the opposite direction, The Three Fishes on Chapel Road is the local JD Wetherspoon and is centrally located.  A final highlight is the Beach House, which is located on Worthing’s iconic promenade and is primarily an eatery with great sea views.  Worthing, with its strong independent pub scene, is one of the best towns in the division for a pub crawl and you’ll find plenty of other bars dotted around the town too.
 
-Spaces are available at the public car park situated behind the church in Queen Street. The post code for the church is BN14 7BJ and the entrance to the car park is on the left-hand side of the church.
+## Culture
+If drinking isn’t your thing, there are plenty of other activities to keep you entertained before the match.  In 2019, Worthing’s Art Deco Pier was dubbed the best in Britain, so you’ll want to head to the seafront and explore that.  Worthing is home to one of the countries oldest cinemas, The Dome, an Edwardian building which opened as a cinema in 1911 and is still going strong. The Worthing Museum & Art Gallery hosts one of the most significant costume collections in the UK - built in 1908 as the town's museum and library, it is expected to undergo a major redevelopment in 2020.
 
-Walking from Queen Street Car Park to the ground: Turn right out of the car park into Queen Street and walk to the junction at the end. From the junction, turn left into South Farm Road. Go straight over the mini roundabout by Worthing High School and after around 200 yards take the second turning on the right, Bulkington Avenue. The second turning on the left down this road is Woodside Road and the stadium is 75 yards down the road on the right
+## Fun Facts
+Worthing are one of two sides in the National League South known as the Rebels (the other being Slough Town).  The nickname stems from the club’s resignation from the West Sussex League in 1920 in protest at a rule change. Before that the club’s nickname was the Mackerel Men, and the fish still feature on the club crest to this day.  Woodside Road has been home to the club since before Hampton even existed, Worthing have played there since 1901!
 
+Safe travels to all Beavers and see you on the beach or at Woodside Road!
 
-By **train** both Worthing and West Worthing station are just a 10-minute walk from the Sussex Transport Community Stadium. The stations are served by Southern with trains available from Victoria, Clapham Junction and East Croydon. There are planned engineering works on several South Western Railway lines however none that directly impact our local area, check South Western Railways [map for information](https://www.southwesternrailway.com/-/media/files/plan-my-journey/planned-improvements/map-1a-25-march-1-april-2024.pdf). There are no planned engineering works on Southern services.
+## General Contacts & Links
+General Info & Help: info@worthingfc.com or call 01903 233 444
 
-From Worthing Station turn right out of the station and walk adjacent to the train line along Cross Street to until you reach the crossing. Cross over the train line onto South Farm Road. Take the first left onto Pavilion Road, after around 300 metres Woodside Road is on your right.
-If exiting the station via the back entrance exit the car park onto Southcourt Road and turn left, follow the road round until you meet Westcourt Road and turn left again. This will lead you onto South Farm Road where you can pick up the remaining directions above.
+- [Purchase Match Tickets](https://app.fanbaseclub.com/Fan/Tickets/SelectType?fixtureId=9727&isFromDashboard=True)
+- The Dome Cinema: [What's On](https://www.domecinema.co.uk/)
+- Worthing Museum & Art Gallery: [Museum and Gallery](https://wtm.uk/museum/)
 
-## Admission and Stadium Information
-We do not have any information about segregation of this fixture, however tickets online are currently split into home and away, so please ensure you purchase tickets on the link below for away tickets. 
+[New Amsterdam](https://www.newamsterdamworthing.co.uk/): New Amsterdam, 79 High Street, Worthing
 
-- Adult £16.00
-- Concessions £12.00
-- 13 - 16 Years £6.00
-- Adult + 1 Child (6 - 12 Years) £17.00
-- Adult + 2 Child (6 - 12 Years) £18.00
-- Family Ticket (2 adults + 2 Children Under 16) £36.00
-- Under 6 Years £0.00
+[The Corner House](https://www.cornerhouseworthing.co.uk/): Corner House Worthing - Best Gastropub in Sussex
 
-{{<button href="https://ticketpass.org/event/EJOZLR/away-fans-worthing-fc-v-hampton-richmond" target="_self">}} Purchase Worthing Tickets {{</button>}}
+[The Cow & Oak](https://www.cornerhouseworthing.co.uk/): The Cow and Oak Worthing - Pub, Bar and Restaurant
 
-Worthing provide a wide range of facilities and services to assist those with a disability. If you have any queries, please contact them on info@worthingfc.com or call 01903 233444.
+[The Three Fishes](https://www.jdwetherspoon.com/pubs/the-three-fishes-worthing): The Three Fishes - J D Wetherspoon
 
-
-## Where’s the local?
-
-The Sussex Transport Community Stadium is located in a residential area however the main town and seafront is a short walk away. There are some pubs within a short walk and you will also find plenty of choice in the town. Below are a few options we have found: 
-
-[The Brooksteed](https://brooksteedalehouse.co.uk/)
-
-[The Railway](https://railwayhotelworthing.com/)
-
-[The Toad in the Hole](https://www.handbrewco.com/venues)
-
-[Coner House](https://cornerhouseworthing.co.uk/)
-
-[The Three Fishes (Wetherspoon)](https://www.jdwetherspoon.com/pubs/all-pubs/england/west-sussex/the-three-fishes-worthing?utm_source=google&utm_medium=maps&utm_campaign=gmb)
+[Beach House](https://beachhouseworthing.co.uk/): Beach House Worthing - Home - Relaxed Beachfront Cafe Bar
 
 
 
